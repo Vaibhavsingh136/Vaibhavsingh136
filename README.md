@@ -12,10 +12,7 @@
 - 💡 Strong in **problem-solving & communication**
 - 🎯 Eager to contribute to projects that **drive innovation and growth**
 - 🌍 Active in extracurriculars: skating, dance, mono-acting, and student events
-- 🏆 Achievements: 
-  - 3rd Prize at **NIFT Fireless Cooking (2024)**
-  - Member of organizing committee, **MasterChef College Event**
-  - Represented college in **CUNY Student Engagement Program**
+
 
 ---
 
